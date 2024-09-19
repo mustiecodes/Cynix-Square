@@ -1,2 +1,0 @@
-# Cynix-Square
-# Cynix-Square
